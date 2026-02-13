@@ -28,3 +28,14 @@ HPH JV & POSCO – Panama Metro Line 3 Project (2024–Present)
 Hotel Reservation Coordinator – Selina (2019–2022)  
 Corporate Language Consultant – Hospital Punta Pacífica  
 Multidisciplinary English Teacher (K–11)
+Technical Degree in English Studies  
+Professional Teaching Certification  
+
+## Education
+Technical Degree in English Studies  
+Professional Teaching Certification 
+
+Continuous training in:
+- Curriculum Development (Cambridge / Pearson / ABeka)
+- Corporate Language Training
+- Documentation & Process Systems

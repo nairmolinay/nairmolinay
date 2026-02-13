@@ -1,16 +1,34 @@
-## Hi there 👋
+# Nair Molina Y.
 
-<!--
-**nairmolinay/nairmolinay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Documentation & Communication Lead  
+Multidisciplinary English Educator  
 
-Here are some ideas to get you started:
+Multilingual professional with 15+ years of experience across education, operations, and large-scale infrastructure projects. Specialized in executive documentation, bilingual communication, and cross-functional coordination in international environments.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+### Core Expertise
+- Corporate Language Consultant
+- Process Organization & Academic Strategy
+- Executive Documentation & Technical Translation  
+- Cross-Functional Coordination  
+- Bilingual Instruction & Curriculum Development  
+- Data-Driven Planning  
+- International Project Communication  
+
+---
+
+### Current Role
+**Translator & Documentation Specialist**  
+HPH JV & POSCO – Panama Metro Line 3 Project (2024–Present)
+
+- Led executive-level translation between Korean senior management and multidisciplinary technical teams
+- Managed structured documentation flow including official letters, memos, and contractual correspondence of several areas
+- Designed document-tracking dashboards improving response visibility and compliance control across departments
+- Managed executive-level bilingual communication between Korean leadership and multidisciplinary local teams
+---
+
+### Previous Experience
+Hotel Reservation Coordinator – Selina (2019–2022)  
+Corporate Language Consultant – Hospital Punta Pacífica  
+Multidisciplinary English Teacher (K–11)

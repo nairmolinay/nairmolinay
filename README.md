@@ -39,7 +39,7 @@ Continuous training in:
 - Curriculum Development (Cambridge / Pearson / ABeka)
 - Corporate Language Training
 - Documentation & Process Systems
-- 
+  
 ## Languages
 
 - Spanish: Native
@@ -48,6 +48,6 @@ Continuous training in:
 
 - 📍 Scarborough, Ontario, Canada
 -  Email: nair.m.y.083@gmail.com
--  LinkedIn: (https://www.linkedin.com/in/nair-yalul-854a29178/)
--  Corporate CV : (https://www.notion.so/Nair-Molina-Y-304c655c904b80f0bd76cf7b79f3f105)]
--  Portfolio:[ [(https://nairmolinay.my.canva.site/nairmolinay)]](https://nairmolinay.my.canva.site/nairmolinay)
+-  Linkedin: https://www.linkedin.com/in/nair-yalul-854a29178/
+-  Corporate CV: https://www.notion.so/Nair-Molina-Y-304c655c904b80f0bd76cf7b79f3f105
+-  Portfolio: https://nairmolinay.my.canva.site/nairmolinay

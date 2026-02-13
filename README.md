@@ -50,4 +50,4 @@ Continuous training in:
 -  Email: nair.m.y.083@gmail.com
 -  LinkedIn: (https://www.linkedin.com/in/nair-yalul-854a29178/)
 -  Corporate CV : [(link público)](https://www.notion.so/Nair-Molina-Y-304c655c904b80f0bd76cf7b79f3f105?source=copy_link)]
--  Portfolio: [(https://nairmolinay.my.canva.site/nairmolinay)]
+-  Portfolio:[ [(https://nairmolinay.my.canva.site/nairmolinay)]](https://nairmolinay.my.canva.site/nairmolinay)

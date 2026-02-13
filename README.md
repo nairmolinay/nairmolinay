@@ -1,8 +1,6 @@
 # Nair Molina Y.
 
-## Documentation & Communication Lead  
-Multidisciplinary English Educator  
-
+## Documentation & Communication Lead  | Multidisciplinary English Educator and Consultant
 Multilingual professional with 15+ years of experience across education, operations, and large-scale infrastructure projects. Specialized in executive documentation, bilingual communication, and cross-functional coordination in international environments.
 
 ---

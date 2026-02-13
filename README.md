@@ -39,3 +39,8 @@ Continuous training in:
 - Curriculum Development (Cambridge / Pearson / ABeka)
 - Corporate Language Training
 - Documentation & Process Systems
+- 
+## Languages
+
+- Spanish: Native
+- English: Professional / Bilingual Proficiency
